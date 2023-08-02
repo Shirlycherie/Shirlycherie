@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Shirlycherie
+- 👋 Hi, I’m @Shulei
 - 👀 I’m interested in cooking, reading, hiking, swimming...
-- 🌱 I’m currently learning Information Science
+- 🌱 I’m currently majoring in Information Science at University of Pittsburgh
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: shirlycherie@gmial.com
 
